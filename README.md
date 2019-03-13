@@ -2,4 +2,4 @@
 
 Hei!
 
-Vi spiste paella til middag idag. Det var godt.
+Vi spiste paella til middag idag. Det var godt!!
